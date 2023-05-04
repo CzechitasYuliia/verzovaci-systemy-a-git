@@ -11,3 +11,4 @@ Na tebe, ty bramboro.
 
 Kdyby tudy projel vlak,
 byl by z tebe bramborák!
+Měli jsme skvělou úrodu
