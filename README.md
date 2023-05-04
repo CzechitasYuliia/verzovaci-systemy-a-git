@@ -1,1 +1,1 @@
-# DA verzovaci sistemy
+# Lekce GITu
